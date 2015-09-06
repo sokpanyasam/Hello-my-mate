@@ -1,2 +1,1 @@
-# Hello-my-mate
-show welcome project
+affaewfc   vflfefaetc.-ow welcome project
